@@ -60,8 +60,8 @@ Great coworkers
 
 
 ### Best interview question?
-Candidate: Are you sure that you want to hire me?
-Me: 😱
+- Candidate: Are you sure that you want to hire me?
+- Me: 😱
 
 
 
